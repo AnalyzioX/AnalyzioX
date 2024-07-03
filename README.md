@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm working on Cloud Computing<br>I'm looking to collaborate on backend dev.<br>I'm looking to help with My community.<br>I'm Learning Cloud computing.<br>Ask me about :- SQL,SAP analytics cloud,PowerBI,html5.<br>Fun Facts :- I'm a content creator 
+I'm working on blockchain<br>I'm looking to collaborate on blockchains developer<br>I'm looking to help with My community.<br>I'm Learning blockchain.<br>Ask me about :- SQL,blockchain,solana<br>Fun Facts :- I'm a content creator 
 
 
 ## 🌐 Socials:
