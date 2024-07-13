@@ -1,5 +1,8 @@
 # 💫 About Me:
-I'm working on Blockchain<br>I'm looking to collaborate on blockchains developer<br>I'm looking to help with My community.<br>I'm Learning blockchain.<br>Ask me about :-CryptoWallet,blockchain,solana,etherium<br>I'm a Hunting for jobs
+  👉A Job Seeker.Searching for Technical Jobs
+  🎯OpenSource Contributer.
+  👩‍💻Currently,Learning Web3.
+  🔥Public Learner.
 
 
 ## 🌐 Socials:
