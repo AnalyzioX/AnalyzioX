@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm working on blockchain<br>I'm looking to collaborate on blockchains developer<br>I'm looking to help with My community.<br>I'm Learning blockchain.<br>Ask me about :-CryptoWalleta<br>Fun Facts :- I'm a Hunting for jobs
+I'm working on blockchain<br>I'm looking to collaborate on blockchains developer<br>I'm looking to help with My community.<br>I'm Learning blockchain.<br>Ask me about :-CryptoWallet,blockchain<br>Fun Facts :- I'm a Hunting for jobs
 
 
 ## 🌐 Socials:
